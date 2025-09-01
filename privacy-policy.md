@@ -19,5 +19,5 @@ We use this information to:
 We do **not** sell, share, or disclose any user data to third parties.
 
 ## Contact
-If you have any questions, email us at: **support@buzzmate.ai**
+If you have any questions, email us at: **jamps0129@outlook.co.nz**
 
